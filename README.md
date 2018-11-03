@@ -1,1 +1,0 @@
-# davidshaffer.github.io
